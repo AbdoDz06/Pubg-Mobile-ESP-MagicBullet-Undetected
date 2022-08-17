@@ -1,6 +1,6 @@
 # Pubg-Mobile-ESP-MagicBullet-Undetected
-M'y Discord Acount : AbdoCoder#3157
-M'y Discord server : discord.gg/bitcheat
+# M'y Discord Acount : AbdoCoder#3157
+# M'y Discord server : discord.gg/bitcheat
 
 ## if you want to sée thé vidéo click this link https://vimeo.com/739620729
 
